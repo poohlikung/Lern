@@ -1,1 +1,2 @@
-# Lern
+# Lern-github
+Sorawit wansenXXXJAX
